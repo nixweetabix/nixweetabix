@@ -8,7 +8,7 @@ Chester (nixbootycheex)
 ![image description](https://i.pinimg.com/originals/83/f9/2a/83f92a3019d6780fa3302706569e72fb.gif)
 
 
-  ![image description](https://blinki.es/blinkies/superhero/captain-america.gif)
+  ![image description](https://adriansblinkiecollection.neocities.org/w11.gif)
 
 
   Hey there I'm Chester/Nix (Nix is a shortcut for phoenix) 
