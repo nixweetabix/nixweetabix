@@ -3,9 +3,9 @@
 
 
 
-Chester (nixbootycheex) ![image description](https://i.pinimg.com/originals/83/f9/2a/83f92a3019d6780fa3302706569e72fb.gif) 
+Chester (nixbootycheex)  
 
-![image description](https://i.pinimg.com/originals/7c/38/0e/7c380e1c60bc1e4647fc12512db982dc.gif)
+![image description](https://i.pinimg.com/originals/83/f9/2a/83f92a3019d6780fa3302706569e72fb.gif)
 
 
   ![image description](https://blinki.es/blinkies/superhero/captain-america.gif)
