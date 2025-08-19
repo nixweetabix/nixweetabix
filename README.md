@@ -3,7 +3,7 @@
 
 
 
-Chester (nixbootycheex) ![image description](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0ef20aaf-0549-48cc-91ae-dd92fd834486/d53ucad-ff8eb768-1daf-42ba-ad7b-80ec93e46353.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi8wZWYyMGFhZi0wNTQ5LTQ4Y2MtOTFhZS1kZDkyZmQ4MzQ0ODYvZDUzdWNhZC1mZjhlYjc2OC0xZGFmLTQyYmEtYWQ3Yi04MGVjOTNlNDYzNTMuZ2lmIn1dXX0.moZUHGmZfFVIcyNin8TrwIrNHxEZADh7rXxRe5hqYq8) 
+Chester (nixbootycheex) ![image description](https://i.pinimg.com/originals/83/f9/2a/83f92a3019d6780fa3302706569e72fb.gif) 
 
 ![image description](https://i.pinimg.com/originals/7c/38/0e/7c380e1c60bc1e4647fc12512db982dc.gif)
 
