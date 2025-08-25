@@ -69,12 +69,24 @@ I'd be grateful if u check out my art insta I barely get some likes so I'd be ve
 ![image description](https://adriansblinkiecollection.neocities.org/stamps/d61.gif)
 ![image description](https://adriansblinkiecollection.neocities.org/stamps/b13.png)
 ![image description](https://adriansblinkiecollection.neocities.org/stamps/e90.gif)
-
-
-
-
-
-
-
-
-
+![image description](https://i5.glitter-graphics.org/pub/572/572045gskuxejdd7.gif)
+![image description](https://i.ibb.co/vYR7WvP/Deadpool-1.gif)
+![image description](https://i.ibb.co/X3wXpw8/Deadpool-5.gif)
+![image description](https://i.postimg.cc/qvyp9d88/fags-for-palestine.gif)
+![image description](https://64.media.tumblr.com/9cc9b7cb77d95e4452d78e5278f9f341/1e5ee5fdd13ae7b1-32/s100x200/c6190650a5766ff8843342bd9abc2cc372d2d38f.pnj)
+![image description](https://64.media.tumblr.com/d5377a26b13e4c2ee5b17c6f73109159/8ef39cb64548f4c3-14/s250x400/f7841db689ade84d4f56051a5090a2326d1ce882.gifv)
+![image description](https://64.media.tumblr.com/a5c9d19c0f0b3643795c1e10e8610a34/8ef39cb64548f4c3-7a/s250x400/2d411e477c39578a80d18cace8ad609d2de1d279.gifv)
+![image description](https://64.media.tumblr.com/bde5f3e011db9ffe2063da3e04a6c240/d57c6c97c638a38d-85/s250x400/f7b6752a7d386a5a5cfc00e7c32f37d02298c4af.gif)
+![image description](https://64.media.tumblr.com/3a0741b60bee67325bcf11bdecf12b5c/af80e6e2ed7a9c08-16/s100x200/a4a43654293ec4752c37cb5dbccf75cd921f3ac9.pnj)
+![image description](https://64.media.tumblr.com/e2f3babeca4ffbbe6f84fd13f38fe1c1/590ada35a4f2d6f9-fd/s640x960/38aac96126ceba87dd18f06906b609afb65f0078.gifv)
+![image description](https://64.media.tumblr.com/79b78fac23fee067c7332944d0782bfe/590ada35a4f2d6f9-70/s640x960/393838bdbb16336201fbc244dbd6d06caaf50a97.gifv)
+![image description](https://64.media.tumblr.com/7b925060f4627ac2f916298a67f6182a/590ada35a4f2d6f9-57/s640x960/0bf4c1c4e825abc30b4ddf9d3a784660dca17752.gifv)
+![image description](https://64.media.tumblr.com/1d91afe46c2fa4d8cb0845400302d1b7/590ada35a4f2d6f9-13/s640x960/a6a4377d714f933d617e1d362512a02b3fa551c2.gifv)
+![image description](https://64.media.tumblr.com/5a719925acbca524feea4350d7729bbc/590ada35a4f2d6f9-6d/s640x960/c87133cfac614e0772bfce7b4be0c4196e27a3e9.gifv)
+![image description](https://64.media.tumblr.com/854ef919d1e3e1171758339d864e0c51/590ada35a4f2d6f9-0d/s640x960/6b316cd606dafc306433633c97b8858d9a964aa5.gifv)
+![image description](https://64.media.tumblr.com/d45a9534879b4276963a7300dd07db65/83f561e7eda11a70-41/s100x200/181d9e2a58a7e4e9e69dc7cf1dc12be8750e9053.pnj)
+![image description](https://64.media.tumblr.com/0e27d2cd2464debfb39cb5dde3b8d7ab/83f561e7eda11a70-d4/s100x200/1311cfa1f93f9574211ec43c36e11a32409d8735.pnj)
+![image description](https://64.media.tumblr.com/87ba99ffaa724c49e00d8b0f2fec7d69/83f561e7eda11a70-cd/s100x200/e8a375b282fc50d9fc409c9267ddb0fd37d7e611.gifv)
+![image description](https://64.media.tumblr.com/93d9bf23dcc1ad9700be60843b832f04/83f561e7eda11a70-57/s250x400/a6fbdd0500f7aeb0f95c4293e11c3b6b92d4ab10.gifv)
+![image description](https://y2k.neocities.org/blinkiez/tumblr_inline_pcjgdawteA1vss73l_1280.gif)
+![image description](https://adriansblinkiecollection.neocities.org/stamps/e65.gif)
