@@ -5,7 +5,7 @@
 
 Chester (nixbootycheex)  
 
-![image description](https://i.pinimg.com/originals/83/f9/2a/83f92a3019d6780fa3302706569e72fb.gif)
+![image description](https://i.pinimg.com/originals/f0/af/c9/f0afc92cee5af64075d566a361fe348f.gif)
 
 
   ![image description](https://adriansblinkiecollection.neocities.org/w11.gif)
