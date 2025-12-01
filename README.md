@@ -10,7 +10,7 @@
   ![image description](https://adriansblinkiecollection.neocities.org/w11.gif)
 
 
-  Hey there I'm Chester/Nix (Nix is a shortcut for phoenix) 
+  Hey there I'm roman ! 
 ꒰ ꒱ Check out my straw page and sign my ata!! ꒰ ꒱
 I'd be grateful if u check out my art insta I barely get some likes so I'd be very grateful!! 
 ꒰ ꒱ AM A SILLY GOOBER SO DONT BE SCARED TO INT. ꒰ ꒱
