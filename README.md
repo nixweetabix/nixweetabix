@@ -4,7 +4,7 @@
 
   
 
-![image description](https://media1.tenor.com/m/3EczenftlLgAAAAC/springtrap-five-nights-at-freddy%27s.gif)
+![image description](https://media1.tenor.com/m/J-JvxeoXzX0AAAAd/springtrap-fire.gif)
 
 
   ![image description](https://adriansblinkiecollection.neocities.org/w11.gif)
