@@ -4,7 +4,7 @@
 
   
 
-![image description](https://media1.tenor.com/m/J-JvxeoXzX0AAAAd/springtrap-fire.gif)
+![image description]("C:\Users\Uživatel\Pictures\Screenshots\Snímek obrazovky 2026-02-05 085607.png")
 
 
   ![image description](https://adriansblinkiecollection.neocities.org/w11.gif)
