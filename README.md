@@ -4,8 +4,7 @@
 
   
 
-![image description](<img width="711" height="795" alt="Snímek obrazovky 2026-02-05 085607" src="https://github.com/user-attachments/assets/c21fd199-76b6-46e4-a8cd-5bc94c97db79" />
-)
+![image description](https://i.pinimg.com/736x/87/b0/86/87b0868e18d2a4c72e125acfac553666.jpg)
 
 
   ![image description](https://adriansblinkiecollection.neocities.org/w11.gif)
