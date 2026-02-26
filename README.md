@@ -11,8 +11,8 @@
 
 
   Hey there I'm roman ! 
-꒰ ꒱ Check out my straw page and sign my ata!! ꒰ ꒱
-I'd be grateful if u check out my art insta I barely get some likes so I'd be very grateful!! 
+               ꒰ ꒱ Check out my straw page and sign my ata!! ꒰ ꒱
+                I'd be grateful if u check out my art insta I barely get some likes so I'd be very grateful!! 
 ꒰ ꒱ AM A SILLY GOOBER SO DONT BE SCARED TO INT. ꒰ ꒱
  BUT FIRST THROUGH WHISP AND THEN WE CAN SIT TOGETHER!!
 ![image description](https://64.media.tumblr.com/fc8edfe17dfd760a9ee273855d65e9b8/tumblr_inline_pdzdvpp6jd1v11djx_500.gif)
