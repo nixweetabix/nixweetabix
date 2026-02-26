@@ -1,10 +1,10 @@
-![image description](https://64.media.tumblr.com/16addfa05d4eb55bc220480c49018d9b/804a182a7ca8e6a2-35/s2048x3072/710b670fd4041c5ad2b3f938b2e5e7508c8c3a84.pnj)
+
 
 
 
   
 
-![image description](https://i.pinimg.com/736x/82/33/fa/8233fab017bbe1a40d5cc12c6fbea0f6.jpg)
+![image description](https://media.discordapp.net/attachments/1209579278191296573/1476590148073553990/IMG_4038.png?ex=69a1ad3d&is=69a05bbd&hm=82de3fdcb9e4d79c4524b66ca9ba593bb0b428bd941dd56abef47fb8db91b65e&=&format=webp&quality=lossless&width=1280&height=960)
 
 
   ![image description](https://adriansblinkiecollection.neocities.org/w11.gif)
