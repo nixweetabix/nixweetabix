@@ -1,1 +1,1 @@
-https://www.statnivlajky.cz/ceska-republika
+img(https://www.statnivlajky.cz/data/flags/w580/cz.png)
